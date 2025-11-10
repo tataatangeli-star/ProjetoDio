@@ -21,8 +21,7 @@ Resumindo: quando a moda volta, ela não volta igual. Ela volta com história, c
 
 E é isso, gente! Espero que você tenha gostado desse papo.
 Se curtiu, compartilha esse episódio com alguém que AMA reparar nas tendências que voltam, ou que vive dizendo “no meu tempo isso já existia!”.
-Me acompanha também no Instagram @seuuser e me conta lá: que tendên[Rachel_JmaOWPZamyKFnIwHVIJ1.mp3](https://github.com/user-attachments/files/23466260/Rachel_JmaOWPZamyKFnIwHVIJ1.mp3)
-cia você quer ver voltando? E qual você torce pra ficar lá no passado mesmo?
+Me acompanha também no Instagram @seuuser e me conta lá: que tendência evocê quer ver voltando? E qual você torce pra ficar lá no passado mesmo?
 
 Um beijo, obrigada pela companhia… e até o próximo Moda em Movimento! ✨👗
 
@@ -30,4 +29,5 @@ Um beijo, obrigada pela companhia… e até o próximo Moda em Movimento! ✨�
 
 
 <img width="688" height="1024" alt="1000015734" src="https://github.com/user-attachments/assets/a10f553e-c207-4468-857e-3b331329a044" />
+[Rachel_JmaOWPZamyKFnIwHVIJ1.mp3](https://github.com/user-attachments/files/23466268/Rachel_JmaOWPZamyKFnIwHVIJ1.mp3)
 
