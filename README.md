@@ -24,3 +24,9 @@ Se curtiu, compartilha esse episódio com alguém que AMA reparar nas tendência
 Me acompanha também no Instagram @seuuser e me conta lá: que tendência você quer ver voltando? E qual você torce pra ficar lá no passado mesmo?
 
 Um beijo, obrigada pela companhia… e até o próximo Moda em Movimento! ✨👗
+
+
+
+
+<img width="688" height="1024" alt="1000015734" src="https://github.com/user-attachments/assets/a10f553e-c207-4468-857e-3b331329a044" />
+
